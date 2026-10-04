@@ -1,9 +1,5 @@
-# Update 1.0.6
+SUMPAH GUA KESEL
+AAAAAAAAAAAAAA
 
-Menambahkan Anu itu
-menambahkan integrasi antara Launcher dengan modpack dan juga news,
-because i can
-
-oh damn bisa
-
-Testing News Lagi
+Sincerely, 
+KrissReison
